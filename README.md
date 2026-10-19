@@ -4,3 +4,5 @@ i do not want any friends for some time, mainly because i'm taking a break. . . 
 If i ever have any friends that are problematic please inform me on my discord with proof !
 [ my discord : @kxvit ]
 please make sure to add any screenshots or obvious names about them so i can notice who ur talking about, as i do not enjoy being close with those who create problems without me knowing anything about it .
+
+MY SKINS ALWAYS HAVE A LEFT BLACK EYE !  it's due to style reasons, so i apologize if it bothers u that my cosplays are not exactly correct, i know they're not !
