@@ -7,4 +7,4 @@ please make sure to add any screenshots or obvious names about them so i can not
 
 3. MY SKINS ALWAYS HAVE A LEFT BLACK EYE !  it's due to style reasons, so i apologize if it bothers u that my cosplays are not exactly correct, i know they're not !
 
-4. if i notice strange / manipulative / rude / etc behavior, i will point it out .  no matter if ur a stranger or ur very close to me, i will still speak up about it.
+4. if i notice strange / manipulative / rude / etc behavior, i will point it out .  no matter if ur a stranger or ur very close to me, i will still speak up about it !
